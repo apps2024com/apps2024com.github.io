@@ -1,1 +1,1 @@
-# apps2024com.github.io
+# lukewcn.github.io/bestrar
